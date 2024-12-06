@@ -7,6 +7,6 @@ Hii my name Adi and i'am student on interst to technology, web deveopment, Artif
 - 🔭 I'm currently Student on Universitas Udayana major Electrical Engineering
 - 🌱 I’m currently learning on Bangkit batch 2
 - 📫 How to reach me: <br>
-      - instagram : adimemes06 (https://www.instagram.com/adimemes06/) <br>
+      - instagram : adimemes06 (https://www.instagram.com/kdksubagia_/) <br>
       - linkedin : adimemes (https://www.linkedin.com/in/adimemes/)
 
